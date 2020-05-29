@@ -1,1 +1,1 @@
-amsgnalehu
+amsgnalehu አመሰግናለሁ በጣም
